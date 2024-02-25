@@ -1,0 +1,2 @@
+# softskillDay9
+deneme
